@@ -8,6 +8,6 @@
 - ### entrar em contato comigo👽
 - Silva.pereira.mikael@escola.pr.gov.br
 
-@Mikael_Abner08
+@Mikael_Abner08 😶‍🌫️
 
-![](https://tenor.com/b0nkr.gif)
+![](https://tenor.com/b0nkr.gif) ☠️
