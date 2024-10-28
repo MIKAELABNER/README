@@ -7,7 +7,7 @@
 
 - ### entrar em contato comigo👽
 - Silva.pereira.mikael@escola.pr.gov.br
-
+- Instagram:
 @Mikael_Abner08 😶‍🌫️
 
-![](https://tenor.com/b0nkr.gif) ☠️
+![](https://media1.tenor.com/m/xVYkFs879dUAAAAd/pep-guadiola-talking-to-nobody-pep-aired.gif) ☠️
