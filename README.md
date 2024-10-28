@@ -3,7 +3,9 @@
 
 - SOU ALUNO
 - ESTOU ESTUDANDO NO [alura](http:/wwww.alura.com.br)
-- Estou me a desenvolvendo na linguagem Java script
+- Estou me desenvolvendo na linguagem Java script
+- Goto de jogar Futebol
+- E a meta é ter um jetta
 
 - ### entrar em contato comigo👽
 - Silva.pereira.mikael@escola.pr.gov.br
